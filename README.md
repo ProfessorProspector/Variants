@@ -1,2 +1,2 @@
-# Variants
-Basically Cy's playground
+# X
+One man's trash is another man's treasure
