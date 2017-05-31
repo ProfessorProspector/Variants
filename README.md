@@ -1,2 +1,2 @@
 # X
-One man's trash is another man's treasure
+One man's trash is another man's texture.
